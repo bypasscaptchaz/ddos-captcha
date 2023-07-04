@@ -1,2 +1,1 @@
-# ddos-captcha
-https://t.me/bypsscpcha5
+https://t.me/tcplmao
